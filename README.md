@@ -1,10 +1,10 @@
 - 👋 Hi, I’m Daniel (Old account got terminated for TOS 😔)
-- 👀 I’m interested in your mom
-- 🌱 I’m currently learning more things about your mom
-- 💞️ I’m looking to collaborate with your mom
-- 📫 How to reach me: Call your mom
+- 👀 I’m interested in your ***
+- 🌱 I’m currently learning more things about your ***
+- 💞️ I’m looking to collaborate with your ***
+- 📫 How to reach me: Call your ***
 - 😄 Pronouns: him
-- ⚡ Fun fact: I'm doing your mom right now
+- ⚡ Fun fact: I'm doing your *** right now
   
 
 <!---
